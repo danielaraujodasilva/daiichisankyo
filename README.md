@@ -1,0 +1,4 @@
+daiichisankyo
+=============
+
+Mind
